@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ivansaostomat1
+- 👀 I’m interested in tech
+- 🌱 I’m currently learning js,css, and also python
+- 📫 How to reach me : ig= ivansaostomat
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: loves cars
